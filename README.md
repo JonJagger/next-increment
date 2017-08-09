@@ -15,7 +15,7 @@ or
 2) Join a group!
 When a group/individual raises their hand you
 are to visit them, and if they are struggling,
-stay with them and help them. Of course,
+stay with them and gently help them. Of course,
 you must ask permission to join them, and
 they may wish to work on without you, which
 is fine. If you join a group you are not to
